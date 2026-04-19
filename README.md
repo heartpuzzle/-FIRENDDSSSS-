@@ -7,7 +7,7 @@ ALL OF MY FRIENDS HERE HEHEHEH
 
 𓏲ꪆKIWI
 
-۶ৎKAI
+۶ৎKAI (henri, punz aka my brother hi)
 
 𓏲ꪆLULU
 
